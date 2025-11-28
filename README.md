@@ -1,1 +1,1 @@
-developed by eyob As
+developed by eyob Ase
